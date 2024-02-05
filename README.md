@@ -1,0 +1,1 @@
+Flowers are colorful, pretty things that grow in gardens and parks. They can be big or small and come in many colors like red, yellow, blue, and pink. Some flowers smell very nice, while others do not have a smell. Bees and butterflies love flowers because they get food from them.
